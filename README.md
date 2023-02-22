@@ -7,7 +7,7 @@
 
 - 📝 I regularly write articles on [https://home.gamer.com.tw/homeindex.php?owner=zoro8192](https://home.gamer.com.tw/homeindex.php?owner=zoro8192)
 
-- 💬 Ask me about **hobby﹑MBTI**
+- 💬 My MBTI **ISFP-T**
 
 - 📫 How to reach me **marioandzoro@gmail.com**
 
